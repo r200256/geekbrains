@@ -1,3 +1,0 @@
-ta-ta-ta
-
-geekbrains
